@@ -1,1 +1,1 @@
-Responsive food webiste easy to use and understand
+Responsive food website easy to use and understand
